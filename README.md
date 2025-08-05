@@ -1,0 +1,1 @@
+# frontend-tribe-design-saas-landing-page-resource-bundle
